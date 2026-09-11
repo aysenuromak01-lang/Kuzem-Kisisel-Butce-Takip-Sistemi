@@ -1,1 +1,1 @@
-# Kuzem--dev-B-t-e-Y-netimi
+# Kuzem--dev-Butce-Yonetimi
